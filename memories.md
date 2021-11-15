@@ -1,5 +1,5 @@
 ---
 layout: default
 title: Memories
-description: Hello.
+description: We hope these make you smile!
 ---
