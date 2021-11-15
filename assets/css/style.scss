@@ -6,6 +6,7 @@
 /* Add a black background color to the top navigation float: top; */
 nav.main-nav {
   overflow: hidden;
+  position: absolute;
   top: 0;
   left: 0;
   width: 100%;
