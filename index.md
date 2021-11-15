@@ -4,6 +4,13 @@ title: Happy 24th Birthday Shannon!
 description: We love you ❤️ 
 ---
 
+Hi Shannon!
+
+Sorry this website is a bit bland (at least for my tastes) but I thought of this idea too last minute to make it more pretty...but I tried my best!
+
+Love,
+Your #1 fan 💜 
+
 Text can be **bold**, _italic_, or ~~strikethrough~~.
 
 [Link to another page](./another-page.html).
