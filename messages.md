@@ -1,5 +1,5 @@
 ---
 layout: default
 title: Messages
-description: Hello.
+description: Messages from us to you~
 ---
