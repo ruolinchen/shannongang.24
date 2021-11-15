@@ -3,10 +3,12 @@
 
 @import "{{ site.theme }}";
 
-/* Add a black background color to the top navigation */
+/* Add a black background color to the top navigation float: top; */
 nav.main-nav {
-  float: top;
   overflow: hidden;
+  position: absolute;
+  top: 0;
+  left 0;
 }
 
 /* Style the links inside the navigation bar; */
