@@ -1,7 +1,7 @@
 ---
 layout: default
 title: Happy 24th Birthday Shannon!
-description: We love you ❤️ 
+description: We **love** you ❤️ 
 ---
 
 Text can be **bold**, _italic_, or ~~strikethrough~~.
