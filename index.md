@@ -4,6 +4,8 @@ title: Happy 24th Birthday Shannon!
 description: We love you ❤️ 
 ---
 
+<center>💜</center>
+
 Hi Shannon!
 
 Sorry this website is a bit bland (at least for my tastes) but I thought of this idea too last minute to make it more pretty...but I tried my best! I literally had to read through and expermiment with so many different options of setting up a website before settling on this one (aka what I was "busy" with earlier this week LOL). I know it's not the best but it's the thought that counts right? And I think you already see me as a tech guru so this would just impress you more heh. Anyways, I know last year you got sad on your birthday because you felt like no one wanted to celebrate your birthday with you BUT I'M CHANGING THAT THIS YEAR. I asked around for everyone to submit messages and/or photos for this project just to remind you that **we care and think about you**! A LOTTO, if I may add and especially on your birthday. And thus this is the resulting 3-day project :3 
