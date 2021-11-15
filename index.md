@@ -6,9 +6,9 @@ description: We love you ❤️
 
 Hi Shannon!
 
-Sorry this website is a bit bland (at least for my tastes) but I thought of this idea too last minute to make it more pretty...but I tried my best!
+Sorry this website is a bit bland (at least for my tastes) but I thought of this idea too last minute to make it more pretty...but I tried my best! I literally had to read through and expermiment with so many different options of setting up a website before settling on this one (aka what I was "busy" with earlier this week LOL)
 
-Love,
+Love,  
 Your #1 fan 💜 
 
 Text can be **bold**, _italic_, or ~~strikethrough~~.
