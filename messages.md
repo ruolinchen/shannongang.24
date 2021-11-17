@@ -1,7 +1,7 @@
 ---
 layout: default
 title: Messages
-description: Messages from us to you~
+description: From us to you~
 ---
 _Happy birthday Shannon! Congratulations on getting older and a year closer to your mid-life crisis! HAHA jokes aside, thank you for putting up with my crazy antics so far and thank you for being there for me all the time! Can’t wait to hang out with you more in the future! <3_
 
