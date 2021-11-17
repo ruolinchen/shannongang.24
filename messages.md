@@ -28,7 +28,7 @@ Winny Zhang
 
 ***
 
-_Happy Birthday! 생일축하해! We met a short time ago, but I am sure that our friendship will be one that lasts long. Welcome to OLDAGE! You probably started having backaches and knee pains. But dance until you break your bones. I wish you all the joy, happiness, laughter, and good food that you deserve on this day. 아주이쁜 엘렌 언니가 ㅋㅋㅋ _
+_Happy Birthday!_ 생일축하해! _We met a short time ago, but I am sure that our friendship will be one that lasts long. Welcome to OLDAGE! You probably started having backaches and knee pains. But dance until you break your bones. I wish you all the joy, happiness, laughter, and good food that you deserve on this day._ 아주이쁜 엘렌 언니가 ㅋㅋㅋ 
 
 Ellen Kim
 
