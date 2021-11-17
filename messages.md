@@ -4,15 +4,14 @@ title: Messages
 description: Messages from us to you~
 ---
 _Happy birthday Shannon! Congratulations on getting older and a year closer to your mid-life crisis! HAHA jokes aside, thank you for putting up with my crazy antics so far and thank you for being there for me all the time! Can’t wait to hang out with you more in the future! <3_
-> 
-> Ruolin Chen
 
-***
+  - Ruolin Chen
 
-> Another year passes and your birthday is here! Happy birthday Shannon ! :D
-We’ve been through thick and thin throughout the years, and had a bunch of our own life problems, but I’m glad we have each other’s backs. I’m happy to call you my friend! I hope your birthday is full of cakes and happiness :^D
-> 
-> - John Kim
+
+_Another year passes and your birthday is here! Happy birthday Shannon ! :D
+We’ve been through thick and thin throughout the years, and had a bunch of our own life problems, but I’m glad we have each other’s backs. I’m happy to call you my friend! I hope your birthday is full of cakes and happiness :^D_
+
+  - John Kim
 
 ***
 
