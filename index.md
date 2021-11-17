@@ -20,4 +20,4 @@ Your #1 fan 💜
 
 
 
-~~I hope this made you cry~~
+<font size="1"><s>~~I hope this made you cry~~</s></font>
