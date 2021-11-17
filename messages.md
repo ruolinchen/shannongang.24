@@ -12,13 +12,13 @@ Ruolin Chen
 _Another year passes and your birthday is here! Happy birthday Shannon ! :D
 We’ve been through thick and thin throughout the years, and had a bunch of our own life problems, but I’m glad we have each other’s backs. I’m happy to call you my friend! I hope your birthday is full of cakes and happiness :^D_
 
-  - John Kim
+John Kim
 
 ***
 
-> Happy happy birthday Shannon! I'm so grateful to have you as a friend, and thank you for making nova life so much fun (and filled with good noms and vibes)! Hope you have the best day with friends and family, and can't wait to visit and see you soon :) boop 
-> 
-> - Kelly Cheung
+_Happy happy birthday Shannon! I'm so grateful to have you as a friend, and thank you for making nova life so much fun (and filled with good noms and vibes)! Hope you have the best day with friends and family, and can't wait to visit and see you soon :) boop_
+
+Kelly Cheung
 
 
 Happy Birthday Shannon OPPAR :D You are finally my age! Do you feel old now? Congratulations Hope you are feeling 24 hehehehe. Even though I am often tagging along with you and Ruolin’s adventure, thanks for dealing with my weirdness and awkwardness. I hope you have a wonderful 24th birthday :^)))  GO SHANNON OPPAR
