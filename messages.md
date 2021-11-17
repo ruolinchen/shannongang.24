@@ -20,8 +20,20 @@ _Happy happy birthday Shannon! I'm so grateful to have you as a friend, and than
 
 Kelly Cheung
 
+***
 
-Happy Birthday Shannon OPPAR :D You are finally my age! Do you feel old now? Congratulations Hope you are feeling 24 hehehehe. Even though I am often tagging along with you and Ruolin’s adventure, thanks for dealing with my weirdness and awkwardness. I hope you have a wonderful 24th birthday :^)))  GO SHANNON OPPAR
+_Happy Birthday Shannon OPPAR :D You are finally my age! Do you feel old now? Congratulations Hope you are feeling 24 hehehehe. Even though I am often tagging along with you and Ruolin’s adventure, thanks for dealing with my weirdness and awkwardness. I hope you have a wonderful 24th birthday :^)))  GO SHANNON OPPAR_
 
-- Winny Zhang
+Winny Zhang
 
+***
+
+_Happy Birthday! 생일축하해! We met a short time ago, but I am sure that our friendship will be one that lasts long. Welcome to OLDAGE! You probably started having backaches and knee pains. But dance until you break your bones. I wish you all the joy, happiness, laughter, and good food that you deserve on this day. 아주이쁜 엘렌 언니가 ㅋㅋㅋ _
+
+Ellen Kim
+
+***
+
+_HAPPY BIRTHDAY SHANNON!!! I’ve only known you for a short time but I’m so glad to have met you and I can’t wait to continue to grow our friendship :) Thank you for putting up with all your 12 children at RTL practice and for being our go-to soju tornado maker XD I hope you have an amazing birthday! <3_
+
+Jenny Su
