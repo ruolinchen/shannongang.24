@@ -108,3 +108,9 @@ _Happy birthday Shannon!! im so glad that we could meet through konnect and than
 
 Hailey
 
+***
+
+_Hi happy bday shan congrats on being as old as me :DDDDDDDDD Your body is gonna deteriorate now LMAO jk <3 Throwback to when I thought you hated me cause I called you short omg (it was during Spring 2018 photoshoot you prob dont remember) It’s always good time dancing with you. HAVE A GREAT ONEEE_
+
+Jein
+
