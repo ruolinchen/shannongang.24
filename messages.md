@@ -114,3 +114,10 @@ _Hi happy bday shan congrats on being as old as me :DDDDDDDDD Your body is gonna
 
 Jein
 
+***
+
+_HAPPY BIRTHDAY SHANNON!!! Missing the shrimp to my flamingo and its been too long ): hope you’ve been living it up and love seeing all your dance covers WOOOT <3 i’m your biggest fan, visual oppar fighting!! Come visit me in sf soon pls <33_
+
+Christine
+
+
