@@ -51,9 +51,9 @@ _What comes with age is life experience and many more happy memories :") And you
 
 _I know that last year was a roller coaster ride for you personally and professionally so I hope you can at least learn to relax today. Hope your 24 will be full of sunshine and rainbows! If not I'm always all ears if you need anyone to vent to;) Have lots of sweets and happy times and lots and lots of good food!!_
 
-_P.s. we really need to take some pictures together, just realized the only pictures that I have to mark our times together are only those of the foods and drinks we 😞 
+_P.s. we really need to take some pictures together, just realized the only pictures that I have to mark our times together are only those of the foods and drinks we 😞 _
 
-_P.P.s. I'm betting on the chance that I'm the only Zinnia you know so I don't have to put my last name here lol. 
+_P.P.s. I'm betting on the chance that I'm the only Zinnia you know so I don't have to put my last name here lol._
 
 Zinnia
 
